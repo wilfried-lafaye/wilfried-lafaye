@@ -6,7 +6,6 @@ This profile showcases my personal and academic projects focused on Machine Lear
 
 ## 🚀 Objective
 
-Currently seeking a **4-month internship** in **IT, AI, or Data** starting from **May 11, 2026** at the earliest.
 
 📧 Feel free to connect with me via [Email](mailto:wilfried.lafaye@icloud.com) or [LinkedIn](https://www.linkedin.com/in/wilfried-lafaye).
 
